@@ -1,4 +1,4 @@
-# Hey Everyone! I'm [Palani Vasu Kumar](https://github.com/Vasukumar3) <img src="https://github.com/himanshusharma89/himanshusharma89/blob/master/Hi.gif" width="25px">
+# Hey Everyone! I'm [P Deviprasada Rao](https://github.com/dddevicom) <img src="https://github.com/himanshusharma89/himanshusharma89/blob/master/Hi.gif" width="25px">
 
 
 # 💫 About Me:
